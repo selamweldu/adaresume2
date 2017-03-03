@@ -21,7 +21,7 @@ Des Moines Area Community College<br>
 - Performed advanced clinical work at Iowa Methodist Medical Center
 - Performed basic clinical work at Trinity Center<br>
 
-**Introduction computer Science and Database administration 06/2016 - 12/2016**<br> 
+**Introduction To Computer Science and Database administration 06/2016 - 12/2016**<br> 
 
 HahuIT training Tutorial Class<br>
 
@@ -35,16 +35,16 @@ HahuIT training Tutorial Class<br>
 ---------
 
 
-**Patient Care Technician&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;01/2015 02/2017**<br>
+**Patient Care Technician&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;01/2015 - 02/2017**<br>
 Virginia Mason Medical Center	&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Seattle, WA	<br>
 
 
-- Work with a critically ill patients
-- Provided a comfortable environment for patients
-- Assisted patients with a post-procedure recovery
-- Prepared patients for medical procedures
-- Measured and documented intake and outputs
-- Applying CKG’s
+- Working with a critically ill patients
+- Providing a comfortable environment for patients
+- Assisting patients with a post-procedure recovery
+- Preparing patients for medical procedures
+- Measuring and documenting intake and outputs
+- Applying EKG’s
 
 **Sales Associate&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;	11/2015 – 01/2016<br>**
 Target	&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Seattle, WA<br>
